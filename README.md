@@ -1,1 +1,3 @@
-# freedom-gorilla-tag
+# freedom-gorilla-tag 
+
+A NEW GENERATION OF FREE MODS. INTRODUCING FREEDOM.
